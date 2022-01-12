@@ -1,5 +1,5 @@
-# Community Classroom is OP
+i# Community Classroom is OP
 
 - Kunal Kushwaha says that this community is amazing.
-- More power to kunal. love the work which your are doing for the community.
+- DIVYA JYOTI is part of community
 - Anirudh Sharma finds the Community Classroom initiative really great!
